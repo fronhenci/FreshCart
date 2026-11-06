@@ -1,0 +1,2 @@
+# FreshCart
+FreshCart Privacy Policy
